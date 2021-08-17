@@ -1,2 +1,1 @@
-# SSHP-Heli-Launch-Pad
-SSHP-Heli-Launch-Pad
+If support needed please join our discord below :) Strike-Modifications Links: https://discord.gg/svfef6JtTK
